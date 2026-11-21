@@ -1,0 +1,3 @@
+User-agent: *
+Allow: /
+Sitemap: https://promo-scout.github.io/ace/sitemap.xml
