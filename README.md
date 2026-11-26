@@ -22,3 +22,7 @@ All files are in the **repository root**. No `guides/`, `assets/`, or `scripts/`
 ## Disclosure
 
 Independent, unofficial ACE Money Transfer referral guide. Referral links may earn the author a reward. Promotional terms, transfer availability and fees must be checked directly with ACE.
+
+## Current promotional benefits
+
+Get a 10 EUR, GBP or USD discount with referral code 2596599 or the referral link. Invite friends and earn up to $50. Send money with ACE for a chance to win an iPhone, Apple Watch or AirPods. Eligibility and promotion terms apply.

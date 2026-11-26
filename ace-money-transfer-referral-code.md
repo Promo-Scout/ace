@@ -14,7 +14,7 @@ This is an **independent referral guide**, not an official ACE Money Transfer pr
 
 ## Is there a signup bonus?
 
-The **€10 / $10 / £10 referral discount** is confirmed by this guide's publisher for eligible new customers. Terms and availability apply. A first transfer may be exempt from standard transfer fees regardless of referral usage. Your checkout and the official promotion terms determine the actual benefit.
+Get a 10 EUR, GBP or USD discount with referral code 2596599 or the referral link. Invite friends and earn up to $50. Send money with ACE for a chance to win an iPhone, Apple Watch or AirPods. Eligibility and promotion terms apply.
 
 A possible **$50 reward for referring a qualifying friend** is intended for an eligible *existing referrer*, not automatically for a new signup.
 

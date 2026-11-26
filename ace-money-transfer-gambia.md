@@ -16,7 +16,7 @@ Considering a money transfer to **Gambia**? This independent guide explains how 
 
 ## First-transfer promotions and referral rewards
 
-ACE may display a standard first-transfer fee waiver for eligible new customers, including customers who do not use a referral code. The €10 / $10 / £10 referral discount is **publisher-confirmed for eligible new customers**; conditions and availability apply. A potential $50 referral reward is intended for qualifying **existing customers who refer friends**, not a guaranteed new-user signup bonus.
+Get a 10 EUR, GBP or USD discount with referral code 2596599 or the referral link. Invite friends and earn up to $50. Send money with ACE for a chance to win an iPhone, Apple Watch or AirPods. Eligibility and promotion terms apply.
 
 ## More information
 

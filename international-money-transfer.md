@@ -4,7 +4,7 @@ International transfers can involve exchange-rate margins, service fees and diff
 
 ## ACE Money Transfer example
 
-ACE referral code: **`2596599`**. [Check the ACE signup page](https://acemoneytransfer.com/sign-up?referral_code=2596599). An eligible first transfer may have its standard transfer fee waived even without a referral code; other discounts are not confirmed here. A possible $50 reward is for qualifying existing referrers, **not a guaranteed signup bonus**.
+Get a 10 EUR, GBP or USD discount with referral code 2596599 or the referral link. Invite friends and earn up to $50. Send money with ACE for a chance to win an iPhone, Apple Watch or AirPods. Eligibility and promotion terms apply.
 
 ## Useful checks
 

@@ -23,7 +23,7 @@ A new-customer first-transfer promotion may waive a **standard transfer fee**; i
 
 ## Referral rewards and other claims
 
-A **$50 referral reward** sometimes mentioned in promotional materials is for eligible **existing customers referring qualifying friends**, not a guaranteed new-customer signup reward. The **€10 / $10 / £10** referral discount is confirmed by this guide's publisher for eligible new customers. Availability and conditions depend on the transfer and account.
+Get a 10 EUR, GBP or USD discount with referral code 2596599 or the referral link. Invite friends and earn up to $50. Send money with ACE for a chance to win an iPhone, Apple Watch or AirPods. Eligibility and promotion terms apply.
 
 ## Related links
 

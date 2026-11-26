@@ -9,3 +9,7 @@ Looking for an ACE Money Transfer promo code when sending money to the **Philipp
 For transfer considerations, see the [Philippines destination guide](ace-money-transfer-philippines.md). You can also [explore more money transfer promo codes and referral bonuses](https://www.remitbonus.wiki/) or read the [ACE guide on RemitBonus.wiki](https://www.remitbonus.wiki/ace).
 
 *Unofficial referral guide; the author may earn a reward for qualifying referrals. Check ACE's current terms. Updated November 2026.*
+
+## Current promotional benefits
+
+Get a 10 EUR, GBP or USD discount with referral code 2596599 or the referral link. Invite friends and earn up to $50. Send money with ACE for a chance to win an iPhone, Apple Watch or AirPods. Eligibility and promotion terms apply.
