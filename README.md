@@ -26,3 +26,20 @@ Independent, unofficial ACE Money Transfer referral guide. Referral links may ea
 ## Current promotional benefits
 
 Get a 10 EUR, GBP or USD discount with referral code 2596599 or the referral link. Invite friends and earn up to $50. Send money with ACE for a chance to win an iPhone, Apple Watch or AirPods. Eligibility and promotion terms apply.
+
+## Americas guides
+
+- [Send money to Mexico: MXN transfer guide](ace-money-transfer-mexico.html)
+- [Send money to Bolivia: BOB transfer guide](ace-money-transfer-bolivia.html)
+- [Send money to Dominican Republic: DOP transfer guide](ace-money-transfer-dominican-republic.html)
+- [Send money to Uruguay: UYU transfer guide](ace-money-transfer-uruguay.html)
+- [Send money to Colombia: COP transfer guide](ace-money-transfer-colombia.html)
+- [Send money to Suriname: SRD transfer guide](ace-money-transfer-suriname.html)
+- [Send money to Honduras: HNL transfer guide](ace-money-transfer-honduras.html)
+- [Send money to Guatemala: GTQ transfer guide](ace-money-transfer-guatemala.html)
+- [Send money to El Salvador: USD transfer guide](ace-money-transfer-el-salvador.html)
+- [Send money to Ecuador: USD transfer guide](ace-money-transfer-ecuador.html)
+- [Send money from the USA: USD transfer guide](send-money-from-usa.html)
+- [Enviar dinero desde Estados Unidos](send-money-from-usa-es.html)
+
+ACE route availability has not been verified for these new guides.
